@@ -1,1 +1,1 @@
-# yuuki1132.github.io
+# yuuki1132-yuukistore.github.io
